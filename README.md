@@ -1,2 +1,12 @@
 # MASTER
 Supreme-phantom
+DIGITAL•=•OWNER=•JUAN•DIEGO•MENDOZA•CHAVEZ
+ANALOG•==•OWNER=•JUAN•DIEGO•MENDOZA•CHAVEZ
+(JUAN•DIEGO•MENDOZA•CHAVEZ)
+AUTHOR'S NAME(MAKE)
+•=(JUAN•DIEGO•MENDOZA•CHAVEZ)
+following owner allowed to all rights + privileges•=
+
+
+
+</html>utf-⁸⁸<html>
